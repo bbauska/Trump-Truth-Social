@@ -1,1 +1,2 @@
-# Trump-truth-social
+# Trump-Truth-Social
+An oxymoron. Truth and Trump.
